@@ -1,26 +1,15 @@
 ## Sources-Keywords
 
-Source #1- 7 Steps to have a better job interview experience
+https://www.fda.gov/animalveterinary/safetyhealth/productsafetyinformation/ucm055436.htm
 
-Prepare
-Practice
-Study
-Early
-Follow-up
-Connecting
-Culture
-Body Language
+(OECD (2018), Meat consumption (indicator). doi: 10.1787/fa290fd0-en (Accessed on 25 October 2018))
 
+(https://www.fsis.usda.gov/wps/portal/fsis/topics/food-safety-education/get-answers/food-safety-fact-sheets/food-labeling/meat-and-poultry-labeling-terms/meat-and-poultry-labeling-terms)
 
-https://www.thebalancecareers.com/top-interview-tips-2058577
+(https://www.beefitswhatsfordinner.com/raising-beef/hormones)
 
+https://www.fda.gov/animalveterinary/safetyhealth/productsafetyinformation/ucm055435.htm
 
-Source #2- Trends on searches of job interviews
+https://animals.mom.me/results-under-milking-cow-3317.html
 
-https://trends.google.com/trends/explore?q=job%20interviews&geo=US
-
-Source #3-Tips to prepare for an interview
-
-https://www.themuse.com/advice/the-ultimate-interview-guide-30-prep-tips-for-job-interview-success
-
-### I'm still brainstorming about this topic. I'm still unsure.
+http://www.amerifresh.com/about-us/why-amerifresh
